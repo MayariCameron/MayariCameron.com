@@ -1,1 +1,1 @@
-# MayariCameron.ai
+# MayariCameron.com
